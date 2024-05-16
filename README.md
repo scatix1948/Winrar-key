@@ -5,6 +5,6 @@ Here is a winrar premium key
 
   1. Open Winrar.
 
-  2. Drag the rarkey file into winrar.
+  2. Drag the rarregkey file into winrar.
 
   3. Have fun..
